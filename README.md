@@ -1,6 +1,7 @@
 ## Angadh Bazaad 
 
-Personal Profile 
+Personal Profile Angadh Bazaad
+
 Name 
 Student number, student email, picture 
 Basic background info 

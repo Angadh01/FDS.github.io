@@ -4,7 +4,9 @@ My Profile Assessment
  
 Personal Profile 
 Angadh Bazaad 
+
 s3912779 
+
 s3912779@student.rmit.edu.au 
  
 My name is Angadh Bazaad and I am 21 year old male living in Sydney, Australia. My nationality is(some info on nationality and culture), I was born in Sydney. I am Bi lingual able to speak Hindi, Urdu and English. I have completed year 12 - HSC and have been working part time in.… (some sort of work experience) I have a key interest in team sports, video games, working out and trying new foods. I love animals and have a few pets of my own which include 2 dogs and a parrot. Other hobbies of mine include watching tv series and playing mobile games specifically clash of clans which is a team oriented game. Since I was a child I have been enjoying team sports and always thrived in such environments. 
